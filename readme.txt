@@ -1,0 +1,1 @@
+https://kkkmmgy.github.io/disc_privacypolicy/index.html
